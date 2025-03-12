@@ -9,6 +9,7 @@
     25g. más de harina (para el empaste)
     
     
+    Paso a paso:
     
     Colocar la leche tibia en un recipiente y disolver allí la levadura. Es importante que la leche esté tibia de forma tal que la levadura se disuelva fácilmente, sino costará mas. Para disolverla ayudarán revolviendo con una cucharita o tenedor hasta integrar totalmente. Reservar mientras seguimos preparando el resto.
     Volcar el medio kilo de harina en un bol y formar una corona (es decir un pequeño hueco en el medio). Agregar la sal alrededor de la corona y fuera del hueco. Recuerden que la sal contrarresta el efecto de la levadura y es por eso que la ponemos alrededor, así las medialunas de manteca quedarán bien esponjosas.
